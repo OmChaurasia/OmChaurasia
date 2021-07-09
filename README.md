@@ -9,7 +9,7 @@
 #
 
 ## Career Objective
-- To secure a challenging position in a reputable organization to expand my learnings, knowledge, and skills in IT sector and Modern technology.
+- To secure a challenging position in a reputable organization to expand my learnings, knowledge, and skills in IT sector and Modern technologies.
 - Seeking an entry-level position to begin my career in a high-level professional environment.
 - To make use of my interpersonal skills to achieve goals of a company that focuses on customer satisfaction and customer experience.
 
